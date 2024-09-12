@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate any projects and job of my interest
 - 📫 How to reach me dm ig @raynaldadika
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i have a girlfriend
 
 <!---
 mirayculous/mirayculous is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
